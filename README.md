@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 🔭 I’m currently working on my Final Year Project
+- 🔭 I’m currently working @Epam system as a Junior Software Engineer
 - 📫 How to reach me: [linkedin.com](https://www.linkedin.com/in/akhil-kumar-singh-a032851a3/)
 - ⚡ Fun fact: love to watch Tmkoc and Pro-Wrestling.
 <!--
