@@ -9,7 +9,7 @@
 
 - 📝 HashNode articles [https://akhilstyles.hashnode.dev/](https://akhilstyles.hashnode.dev/)
 
-- ⚡ Fun fact **I love to go gym,Fitness isn't just a passion; it's a way of life that keeps me motivated and energized!**
+- ⚡ Fun fact **I love to go gym, Fitness isn't just a passion; it's a way of life that keeps me motivated and energized!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
