@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=akhil27styles&label=Profile%20views&color=0e75b6&style=flat" alt="akhil27styles" /> </p>
 
-- 🔭 I’m currently working at **Epam Systems**
+- 🔭 I’m currently working at **NOT A FANG | MANG OR MANGOO 😂**
 
 - 👨‍💻 peerlist [https://peerlist.io/akhil007](https://peerlist.io/akhil007)
 
